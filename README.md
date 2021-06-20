@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Eeeeeesther
+- 👋 Hi, I’m Esther 
 - 👀 I’m interested in Marketing and Business 
 - 🌱 I’m currently learning Marketing Mangement
 - 💞️ I’m looking to collaborate on Social Media Mangager, and Digital Marketing. 
